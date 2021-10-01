@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @P3rc3nt01
+- 🟣 Im a Streamer
+- 🔵 Discord bot developer
+- 🔗 https://discord.gg/T4hyvbfXJa
+- 🔗 https://www.twitch.tv/p3rc3nt__
